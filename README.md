@@ -13,3 +13,5 @@ Follow My Instagram Account <a href="https://instagram.com/_zidanfadilaharsa"> G
 
 Wanna talk to me?
 <a href="https://wa.me/77472105089"> CHATT AJA GA USAH MALU MALU >//< </a>
+  
+Fitur? slot,spinslot,shot,hunt,fish,dig,dungeon,mining,carding,sellfish,sellhunt,xp,leaderboard, and others cek aja sendiri. Ini bot game makanya ga ada fitur sosmed dll. kalau mau tambahin aja sendiri :)
